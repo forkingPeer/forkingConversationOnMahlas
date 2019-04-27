@@ -7,9 +7,9 @@
 In simple terms, Mahlas is a way of creating art together.
 
 
-      * **peer :** could you elaborate on how you try to prevent earning money from art, and why? 
-
-
+  * **peer :** could you elaborate on how you try to prevent earning money from art, and why? 
+  
+  * **bager :** How part is easy to explain; I create works that are hard to sell, I do not have a gallery to represent me, I try to perform when people wants to buy things (Deniz Yılmaz's poems are sold but I did not want to take the money so that the idea of Mahlas was born, I created another dialogue when someone wanted to buy Deniz Yılmaz), I have refused an amazing support offer from a company (they did not ask for anything in return), they offered me to cover all my expenses for one year. I refused another support offer for shepherd because I felt like I would not be able to finish it. After that we come to the why part. I do not know. I am not a rich person, I earn my living for almost more than 25 years. I started from zero, I am still close to zero. I am a hard worker but I prefer to earn money when I need and just the amount I need. I have a problem with owning stuff, I do not like to own things. I feel very close to the idea of Melami way but in authorship, when I feel like I own something I try to find a way to get away from it. I do not enjoy doing that but I do not see it as a problem either. I try to earn what I deserve and that is very hard in art, it is very speculative. This attitude I have, can change in time, I did not decide to behave like that, it happened, and it can go away. I do not know but I am interested in this feeling. I can say that I am almost observing myself doing this.
 
   * **peer :** how does "mahlas" differ from other modes of creating art together? does it differ from existing models? if so, how?
 
